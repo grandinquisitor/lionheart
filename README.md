@@ -1,3 +1,6 @@
+## [Purchase self-assembly kit](https://www.tindie.com/products/nerfhammer/hearty-badge-self-assembly-kit/).
+
+## [Purchase pretty backlit badge (assembled)](https://www.tindie.com/products/nerfhammer/hearty-backlit-badge/).
 
 # Materials
 
